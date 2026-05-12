@@ -1,3 +1,0 @@
-# Phober Website
-
-Coming soon...
